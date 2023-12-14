@@ -1,2 +1,3 @@
 # agcci-class
-my first repository
+I love my big sister. May her soul rest in peace.
+huhkmnjhmkl
